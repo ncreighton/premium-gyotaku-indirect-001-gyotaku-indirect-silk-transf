@@ -1,0 +1,2 @@
+# premium-gyotaku-indirect-001-gyotaku-indirect-silk-transf
+You've mastered gyotaku printing, but tracking your indirect and silk transfer experiments across scattered notes is killing your creative momentum. The Gyotaku Indirect &amp; Silk Transfer Craft Lab solves this—giving you one centralized Notion workspace designed specifically for documenting, refining, and scaling your fish-print and transfer techniqu
